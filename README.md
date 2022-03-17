@@ -26,7 +26,7 @@ Student of Ahmad Dahlan University, Yogyakarta. :man_technologist:
 
 [![Twitter URL](https://img.shields.io/twitter/url?color=%231DA1F2&label=follow&logo=twitter&logoColor=%231DA1F2&style=flat-square&url=https%3A%2F%2Fwww.reddit.com%2Fuser%2FFatChicken277)](https://twitter.com/HabiePo)
 [![Twitter URL](https://img.shields.io/twitter/url?color=%23fb3958&label=follow&logo=instagram&logoColor=%23fb3958&style=flat-square&url=https%3A%2F%2Fwww.instagram.com%2Falejorc_)](https://www.instagram.com/dx27_habibie)
-[![Github: Mohit Patil](https://img.shield.io/github/followers/BestanHardjana?label=BestanHardjana&style=social)](https://github.com/BestanHardjana)
+</a> [![GitHub: Mohit Patil](https://img.shields.io/github/followers/BestanHardjana?label=BestanHardjana&style=social)](https://github.com/vyto1112)
 
 - Me Email 📧: <a href= "mailto:bestan.harjana@gmail.com">Email Me!</a> </br>
 - Me Draw Stuff 📑: [Derpibooru](https://derpibooru.org/profiles/HabiePoN3).
