@@ -20,7 +20,7 @@ Student of Ahmad Dahlan University, Yogyakarta. :man_technologist:
 - Looking for a partner may can help me to do stuff... hehehe
 - Just a beginner artist on drawing :3 🖋️
 - Loves to gaming with friend, mostly on pc
-- Want to talk to me? You can reach me with my social media, you can down below :D
+- Want to talk to me? You can reach me with my social media, you can see it down below :D
 
 ## Social media :mailbox_with_no_mail:
 
